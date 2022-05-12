@@ -1,1 +1,0 @@
-# wilsonpercival.github.io
